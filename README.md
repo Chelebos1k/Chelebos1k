@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning))
 - 💞️ I’m looking to collaborate on ...defjjnvnfopgr)|
 - 📫 How to reach me ..fgvfrg
-- 😄 Pronouns: ..rsegfrgw
+- 😄 Pronouns: ..rsegfrgwpcvhugqwf
 - ⚡ Fun fact: ..regtjhytjnythe
 <!---
 Chelebos1k/Chelebos1k is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

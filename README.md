@@ -2,7 +2,7 @@
 - 👀 I’m interested in detectiv
 - 🌱 I’m currently learning))
 - 💞️ I’m looking to collaborate on ...jhgfrdtyuiol
-- 📫 How to reach me ..yhreyjtrsgtgdtjuteyhteyhj
+- 📫 How to reach me ..ccxhujm,;
 - 😄 Pronouns: ..rsnytnry
 - ⚡ Fun fact: ..ryhtrhtrh
 <!---

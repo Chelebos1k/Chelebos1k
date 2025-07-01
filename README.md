@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Chelebos1k
 - 👀 I’m interested in detectiv
 - 🌱 I’m currently learning))
-- 💞️ I’m looking to collaborate on ...nhfnfgbh
+- 💞️ I’m looking to collaborate on ...gftyiuhjikl
 - 📫 How to reach me ..ccxhujm,;
 - 😄 Pronouns: ..rsnytnry
 - ⚡ Fun fact: ..ryhtrhtrh
